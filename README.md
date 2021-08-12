@@ -8,7 +8,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other Students 
 - 🥅 2021 Goals: Contribute to open source project
-- ⚡ Fun fact: I love to swim and Playing game
+- ⚡ Fun fact: I love to swim and Playing game 🙈
 
 ### Connect with me:
 
